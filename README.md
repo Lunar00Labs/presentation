@@ -32,7 +32,7 @@ Chris’s love for his son, Christopher, is a beautiful aspect of the movie. Des
 #### **4. Believe in Yourself**  
 Chris’s unwavering self-confidence was crucial to his success. Even when others doubted him, he believed in his abilities.  
 
-**Example:** Chris’s belief in himself was evident during his internship at Dean Witter. Despite being the only unpaid intern and competing against many others, he believed he could succeed—and he did! This teaches us the importance of self-belief and resilience, even when life feels overwhelming.  
+**Example:** Chris’s belief in himself  during his internship when  he was unpaid intern and competing against many others, he believed he could succeed—and he did!
 
 ---
 
