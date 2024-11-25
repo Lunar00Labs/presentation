@@ -5,7 +5,7 @@
 
 My name is Aadil, and my ID is 025. First, I’d like to thank Auli and Zarif for their wonderful presentation on the story and characters of the movie *The Pursuit of Happyness*. And thank you all for being such attentive listeners!  
 
-You’ve already heard about the storyline and characters, so now I’ll take it a step further. My part of the presentation focuses on the powerful life lessons we can learn from this movie. I’ll also suggest ways the movie could be improved to make it even better. Finally, I’ll share the main message the movie leaves with its audience.  
+You’ve already heard about the storyline and characters, so now I’ll take it a step further. Now, I will talk about the life lessons we can learn from this movie. I will also share how the movie can be improved. At the end, I will share the main message of the movie. Let’s start!”
 
 Let’s dive in!"  
 
