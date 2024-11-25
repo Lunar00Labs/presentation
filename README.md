@@ -37,7 +37,7 @@ Chris’s unwavering self-confidence was crucial to his success. Even when other
 ---
 
 ### **Part 2: Room for Improvement**  
-While the movie is inspiring, no story is perfect. Here are a few ways the movie could have been even better:  
+Although the movie is inspiring but  no story is perfect so I found some error. Here are a few ways the movie could have been even better:  
 
 #### **1. Pacing Issues**  
 Some parts of the movie feel slow, especially in the middle. By tightening these scenes, the movie could have maintained its momentum, making it more engaging for the audience.  
